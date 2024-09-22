@@ -26,4 +26,4 @@ I'm currently exploring the intersection of AI and engineering, particularly in 
 
 ---
 
-⭐️ From [YourGitHubUsername](https://github.com/YourGitHubUsername)
+⭐️ From [ShaniceKelly](https://github.com/ShaniceKelly)
