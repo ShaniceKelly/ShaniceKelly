@@ -17,7 +17,6 @@ I'm a versatile engineer with a strong foundation in mechanical engineering and 
 - Signal Processing
 - Project Management
 
-
 ## 📫 How to reach me
 - LinkedIn: www.linkedin.com/in/shanice-kelly
 
